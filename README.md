@@ -6,3 +6,6 @@
 	 > my disc is chocobows!! 
 
   [sign my gb :3](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
+
+  and SOMEONE HELPPP WHY IS MY PONY TOWN NOT LOADING I HAVENT BEEN ONLINE IN LIKE 4 DAYS 
+![!](https://i.postimg.cc/gJz9T2g4/Screenshot-2024-04-26-230750.png)
