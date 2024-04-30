@@ -3,6 +3,6 @@
      🌹 ✮⋆˙ i go by rina, pristine, or anything else you know me by prior :D
 	 > c + h welcome always! ^_^ 
 	 > i like persona, evangelion, twewy + etc 
-	 > my disc is chocobows!! 
+	 > my disc is stvrgunnr!! 
 
   [sign my gb :3](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
