@@ -5,4 +5,4 @@
 	 > i like conan, persona, evangelion, twewy + etc 
 	 > disc - stvrgnner
 
-  [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
+  [strawpage!](https://bulletchambers.straw.page/) [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
