@@ -2,6 +2,6 @@
 #### 🌷 hello! 
      🩰 ✮⋆˙ i go by rina, pristine, or anything else you know me by prior :D
 	 > interaction welcome always ^_^ 
-	 > i like conan, persona, evangelion, twewy + etc 
+	 > i like conan, persona, fullmetal, evangelion, twewy + etc 
 
   [strawpage!](https://bulletchambers.straw.page/) [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
