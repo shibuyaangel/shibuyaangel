@@ -2,6 +2,6 @@
 #### 🌷 hello! 
      🩰 ✮⋆˙ rina, infp-t 9w1
 	 > interaction welcome always ^_^ 
-	 > i like conan, persona, fullmetal, evangelion, twewy + etc 
+	 > i like conan, persona, fullmetal, evangelion, twewy, kingdom hearts, final fantasy, + etc 
 
   [strawpage!](https://bulletchambers.straw.page/) [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
