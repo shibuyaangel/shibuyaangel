@@ -1,7 +1,7 @@
-![!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/7714c4cf-6260-4fce-bb57-7ab0b46d8598/dbrp0qe-bdf0b364-5429-4f46-b4a9-5d1c80079160.png/v1/fill/w_99,h_56/my_melody_by_phlogistinator_dbrp0qe-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC83NzE0YzRjZi02MjYwLTRmY2UtYmI1Ny03YWIwYjQ2ZDg1OThcL2RicnAwcWUtYmRmMGIzNjQtNTQyOS00ZjQ2LWI0YTktNWQxYzgwMDc5MTYwLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.on4bUmik0v3YxCXVtMwwX9EQ8pwp4PaejheOV4sVv5c)
-#### 🌷 hello! 
-     🩰 ✮⋆˙ rina, infp-t 9w1
+
+####  ![!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5d85c75b-d5eb-48f6-b8d6-e01dd235e5d3/d8ugiyi-30a78f98-88d8-4810-9832-7b4650dd02ea.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzVkODVjNzViLWQ1ZWItNDhmNi1iOGQ2LWUwMWRkMjM1ZTVkM1wvZDh1Z2l5aS0zMGE3OGY5OC04OGQ4LTQ4MTAtOTgzMi03YjQ2NTBkZDAyZWEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Oglea8ntuKYsgXrCXLUMCaelrWILX1zXvzF3IyHakqQ)
+     🌀 ✮⋆˙ rina, infp-t 9w1
 	 > interaction welcome always ^_^ 
 	 > i like conan, persona, fullmetal, evangelion, twewy, kingdom hearts, final fantasy, + etc 
 
-  [strawpage!](https://bulletchambers.straw.page/) [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
+  ![!](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/9cbba6e5-cffe-4537-a24a-305b77e34fb7/dh2y68c-df04f6e3-f1d3-4ec2-933e-3bd49f91b936.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzljYmJhNmU1LWNmZmUtNDUzNy1hMjRhLTMwNWI3N2UzNGZiN1wvZGgyeTY4Yy1kZjA0ZjZlMy1mMWQzLTRlYzItOTMzZS0zYmQ0OWY5MWI5MzYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.w_YW6IuGPm4vWEB_sxxqYmiUJTIXwtVqRvJ9kIoYfow) [strawpage!](https://bulletchambers.straw.page/) [sign my gb](https://shibuya-angel.123guestbook.com/) [read rentry!](https://rentry.co/angelofshibuya)
